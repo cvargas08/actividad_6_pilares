@@ -1,1 +1,2 @@
-# actividad_6_pilares
+# actividad 6 pilares
+## Hola super nintendo Chalmers....Estoy aprendiendo Lisa
